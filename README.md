@@ -8,4 +8,4 @@ Taught ***slides and lecture*** is also available.
 You can watch ***videos*** from this links:
 1. [part 1](https://aparat.com/v/St1wm)
 2. [part 2](https://aparat.com/v/wDQyW)
-3. [part 3]()
+3. [part 3](https://aparat.com/v/K7LoX)
